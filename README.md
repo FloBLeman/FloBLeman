@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT Networks
 <!---- 🌱 I’m currently learning ...--->
 <!---- 💞️ I’m looking to collaborate on ...--->
-<!---- 📫 How to reach me ...--->
+-📫 How to reach me: contact@florentb.ch
 - 😄 Pronouns: he/him
 <!--- ⚡ Fun fact: ...--->
 
